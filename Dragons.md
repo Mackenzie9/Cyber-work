@@ -6,4 +6,9 @@ There are two main types of dragons: the dragon with four legs and two wings, an
 These Dragons are often portrayed as warriors and vicious monsters, like in this image. 
  
 ![A dragon fighting in a war.](https://media.wired.com/photos/5ada3a2c1e66870735eada27/2:1/w_1396,h_698,c_limit/DragonPasswordFINAL.jpg)
+ 
 However sometimes they are seen as cute little friends.
+ 
+ ![A cute drawing of a dragon](https://i.pinimg.com/564x/01/b4/fa/01b4face2b4459d9b027ef2c03e74308.jpg)
+  
+ Overall, the way people see dragons depends on the culture.
